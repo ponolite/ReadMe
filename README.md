@@ -6,4 +6,6 @@ I am an aspiring Product Designer studying Information at University of Toronto!
 
 📝 An avid writer and reader at heart, I've used my writing ability to conduct meaningful research.
 
+🎞️ Ask me about anything Wong Kar-wai related...
+
 More of my work is in my portfolio here: https://quangmai.framer.website
